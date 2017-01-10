@@ -1,57 +1,61 @@
 # Welcome to MANBUN COOKBOOK  
 
-This is alex's MANBUN COOKBOOK. 
+This is alex's MANBUN COOKBOOK.   
 
-Key features:
-Delicious. 
-AWESOME. 
-TASTY AS FUUUUU. 
+Key features:  
+Delicious.   
+AWESOME.   
+TASTY AS FUUUUU.   
 
-#RAW AND GREEN (salads) 
+#RAW AND GREEN (salads)   
 
-## Making a Vinaigrette
+## Making a Vinaigrette  
 
-Paul Newman. Great dude. Makes killer grape juice. Tho I find his Vinaigrettes BLAND. IT'S TOO POTATO. 
+Paul Newman. Great dude. Makes killer grape juice. Tho I find his Vinaigrettes BLAND. IT'S TOO POTATO.   
 
-HERE IS HOW TO MAKE YOUR OWN VINAIGRETTE 
+HERE IS HOW TO MAKE YOUR OWN VINAIGRETTE   
 
-General rule. 3 Parts Oil to 1 Part Acid 
+General rule. 3 Parts Oil to 1 Part Acid   
 
 ####Acceptable Oils 
-Extra Virgin Olive Oil (if it has little Italian catholic angels with wings on it on the label, chances are it's pretty decent)
-Avocado oil -> ITS NEUTRAL IN TASTE AND IT COMES FROM GOD's MAYO 
+Extra Virgin Olive Oil (if it has little Italian catholic angels with wings on it on the label, chances are it's pretty decent)  
+Avocado oil -> ITS NEUTRAL IN TASTE AND IT COMES FROM GOD's MAYO   
 
 ## MANBUN ASIAN STEROTYPE Salad Dressing 
 
-1 cup Oil 
-1-2 whole lemon (USE YOUR HANDS TO SWEEZEE dat juice)
-3-4 tablespoon soy sauce maybe 10 if you want a heart attack when your 21 
-5 pinches of sesame seeds (BLACK ONES WHITE ONES IT DONT MATTER (but they do taste different) 
-1 clove of minced garlic (optional if its DATE NIGHT)
-1/4 of a shallot minced. YEAH THATS RIGHT (optional: mini onion that is SHARPER)
-Grate ginger. Again to taste GOTTA GET SOME OF DAT GINGER 
-Got YUZU? MICROPLANE THAT IN FOO 
-Add maple syrup to taste if you want some Canadian in it 
+1 cup Oil   
+1-2 whole lemon (USE YOUR HANDS TO SWEEZEE dat juice)  
+3-4 tablespoon soy sauce maybe 10 if you want a heart attack when your 21   
+5 pinches of sesame seeds (BLACK ONES WHITE ONES IT DONT MATTER (but they do taste different)    
+1 clove of minced garlic (optional if its DATE NIGHT)  
+1/4 of a shallot minced. YEAH THATS RIGHT (optional: mini onion that is SHARPER)  
+Grate ginger. Again to taste GOTTA GET SOME OF DAT GINGER  
+Got YUZU? MICROPLANE THAT IN FOO   
+Add maple syrup to taste if you want some Canadian in it   
 
 
-Assemble in a jar. MIX IT MIX IT MIX IT 
+Assemble in a jar. MIX IT MIX IT MIX IT   
+
+COVER THAT DRESSING ON GREENS 
 
 DOone. 
 
 #Soups
 
+Winter. Cold. Soup. Yes. 
+
 ## Angry ButterNUT Soup. ALL HAIL THE GOURD! 
 
-1 butternut squash or 2 depends how thick you want a soup (SUB WITH ANY GOURD YOU LIKE OH YEAH!!) 
-Veggie stock-> can use any kind of stock but we wanted to keep it vegan 
-1 onion 
-2-3 garlic cloves 
-1 can of Coconut milk
-Coconut oil 
-3 sprigs of thyme 
-1-2 bay leaves depending on size 
-Fresh parsley 
-2 Thai chilies (want it spicier -> 1 tablespoon of LOGA's HOT SAUCE)
+1 butternut squash or 2 depends how thick you want a soup (SUB WITH ANY GOURD YOU LIKE OH YEAH!!)   
+Veggie stock-> can use any kind of stock but we wanted to keep it vegan   
+1 onion   
+2-3 garlic cloves  
+1 can of Coconut milk  
+Coconut oil   
+3 sprigs of thyme   
+1-2 bay leaves depending on size  
+Fresh parsley   
+2 Thai chilies (want it spicier -> 1 tablespoon of LOGA's HOT SAUCE)  
 
 1.	Skin and cube your butternut squash. About 1-2 inch chunks, doesn’t have to be artful but needs to be more or less the same size.  Ideally you want to fill squash to the brim of the pot you have 
 2.	Mince garlic and dice onion (smaller the better) 
