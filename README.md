@@ -1,11 +1,11 @@
-# Welcome to MANBUN COOKBOOK  
 
-This is alex's MANBUN COOKBOOK.   
+### Key features of this COOKBOOK  
 
-Key features:  
 Delicious.   
 AWESOME.   
-TASTY AS FUUUUU.   
+TASTY AS FUUUUU.  
+POWER LEVELS OVER 10,000. 
+
 
 ## RAW AND GREEN (salads)   
 
