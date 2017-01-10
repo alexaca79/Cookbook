@@ -7,9 +7,9 @@ Delicious.
 AWESOME.   
 TASTY AS FUUUUU.   
 
-# RAW AND GREEN (salads)   
+## RAW AND GREEN (salads)   
 
-## Making a Vinaigrette  
+### Making a Vinaigrette  
 
 Paul Newman. Great dude. Makes killer grape juice. Tho I find his Vinaigrettes BLAND. IT'S TOO POTATO.   
 
@@ -17,11 +17,11 @@ HERE IS HOW TO MAKE YOUR OWN VINAIGRETTE
 
 General rule. 3 Parts Oil to 1 Part Acid   
 
-####Acceptable Oils 
+#### Acceptable Oils 
 Extra Virgin Olive Oil (if it has little Italian catholic angels with wings on it on the label, chances are it's pretty decent)  
 Avocado oil -> ITS NEUTRAL IN TASTE AND IT COMES FROM GOD's MAYO   
 
-## MANBUN ASIAN STEROTYPE Salad Dressing 
+### MANBUN ASIAN STEROTYPE Salad Dressing 
 
 1 cup Oil   
 1-2 whole lemon (USE YOUR HANDS TO SWEEZEE dat juice)  
@@ -40,11 +40,11 @@ COVER THAT DRESSING ON GREENS
 
 DOone. 
 
-#Soups
+## Soups
 
 Winter. Cold. Soup. Yes. 
 
-## Angry ButterNUT Soup. ALL HAIL THE GOURD! 
+### Angry ButterNUT Soup. ALL HAIL THE GOURD! 
 
 1 butternut squash or 2 depends how thick you want a soup (SUB WITH ANY GOURD YOU LIKE OH YEAH!!)   
 Veggie stock-> can use any kind of stock but we wanted to keep it vegan   
@@ -69,9 +69,9 @@ Fresh parsley
 10.	Serve with chopped chives and a bit of sour cream. Maybe a line of maple syrup. Garnish it however you like. 
 
 
-# MEAT 
+## MEAT 
 
-## It Goes MOOO
+### It Goes MOOO
 
 
 ## OINK OINK 
