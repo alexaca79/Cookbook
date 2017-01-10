@@ -29,6 +29,7 @@ Avocado oil -> ITS NEUTRAL IN TASTE AND IT COMES FROM GOD's MAYO
 5 pinches of sesame seeds (BLACK ONES WHITE ONES IT DONT MATTER (but they do taste different)    
 1 clove of minced garlic (optional if its DATE NIGHT)  
 1/4 of a shallot minced. YEAH THATS RIGHT (optional: mini onion that is SHARPER)  
+1 tablespoon of mustard. <- this helps as a binder for the oil and vinger 
 Grate ginger. Again to taste GOTTA GET SOME OF DAT GINGER  
 Got YUZU? MICROPLANE THAT IN FOO   
 Add maple syrup to taste if you want some Canadian in it   
