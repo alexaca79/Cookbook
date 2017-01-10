@@ -69,14 +69,14 @@ Fresh parsley
 10.	Serve with chopped chives and a bit of sour cream. Maybe a line of maple syrup. Garnish it however you like. 
 
 
-#MEAT 
+# MEAT 
 
-##It Goes MOOO
+## It Goes MOOO
 
 
-##OINK OINK 
+## OINK OINK 
 
-###PORK BELLY 
+### PORK BELLY 
 
 
 
