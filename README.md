@@ -5,7 +5,11 @@ AWESOME.
 TASTY AS FUUUUU.  
 POWER LEVELS OVER 10,000.
 
-## 
 
 
+Writers 
+
+Alex C - The OG Manbun. 
+
+Bryan T - 
 
