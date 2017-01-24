@@ -8,6 +8,6 @@
 * MEAT - MOOO MOOO OVER
 * MEAT - OINK OINK
 * MEAT - Previous DINOSAURS -&gt; Chicken
+* [Cooking Thanksgiving. Easy? Yes. Prep? Absolutely? Painless? ONLY IF YOU PREP](cooking-thanksgiving-easy-yes-prep-absolutely-painless-only-if-you-prep.md)
 * Knock Knock it's SUNSHINE - Breakfast
-* [Sandwich LAND](sandwich-land.md)
 
