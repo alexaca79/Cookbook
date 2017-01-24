@@ -1,12 +1,2 @@
-Bacon. 
-
-Eggs. 
-
-
-
-Done. 
-
-
-
 
 
